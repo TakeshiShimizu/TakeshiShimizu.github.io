@@ -1,2 +1,0 @@
-# TakeshiShimizu.github.io
-test
