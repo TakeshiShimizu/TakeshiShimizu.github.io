@@ -1,1 +1,0 @@
-# TakeshiShimizu.github.io
